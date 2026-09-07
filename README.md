@@ -26,6 +26,5 @@ anne‎ ‎ ‎  / ‎ ‎ ‎ miles
 
 <div align="center">
 <img width="100%" src="https://64.media.tumblr.com/f313ef6178ee7be9ec8a497d79bc68cb/0076baddc1efebbd-ee/s2048x3072/10d4389b14ce70697f26055748b70d14a7f2b54a.pnj">
-
-THANK YUOU MICHA FOR MAKING THIS README I RREALLY LIKE IT ITS FULL OF MILES ILVOE IT
+">
 </div>
