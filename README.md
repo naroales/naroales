@@ -6,7 +6,7 @@ anne‎ ‎ ‎  / ‎ ‎ ‎ miles
 #1 miles morales fan!
 </div>
 
-<a href="https://rentry.co/august-27th">rentry</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    <a href="https://www.tiktok.com/@naroales">tiktok</a>
+<a href="https://rentry.co/august-27th">rentry</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    <a href="https://www.tiktok.com/@naroales">tiktok</a>      <a href="https://naroales.straw.page">strawpage</a> 
 
 <table>
   <tr>
